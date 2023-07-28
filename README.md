@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @eldar2o
+- 👋 Hi, I’m Eldar
